@@ -1,0 +1,1 @@
+<p align="center"><i>"Think deeply about simple things."</i> — Carl Friedrich Gauss</p>
